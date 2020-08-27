@@ -1,1 +1,2 @@
-# AME220Fall2020
+# Nathanial Hunter Amador
+# 1215332092
